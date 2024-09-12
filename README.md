@@ -4,7 +4,7 @@ estou interessado em entrar na sua empresa,
 sou estudante do ensino medio
 curso alura e speaksp
 irei concluir esses cursos em 1ano e o ensino medio em 3
-caso esteja interessado meu email é
+caso esteja interessado meu e-mail e numero de telefone são:
 vinidiaslima08@gmail.com
 n/de telefone-11941159042
 
